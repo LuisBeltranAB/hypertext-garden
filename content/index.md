@@ -1,6 +1,4 @@
 ---
 title: Welcome
 ---
-This is my [[Hypertext garden]].
-
-[[CV]]
+Welcome to my [[Hypertext garden]]. 
