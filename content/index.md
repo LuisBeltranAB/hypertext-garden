@@ -6,4 +6,4 @@ Welcome to my [[Hypertext garden]]. Feel free to look around and read my notes. 
 - Note
 - Note
 
-If you are visiting because you found the link on a job application, have a look at my digital [[CV]].
+If you are visiting because you found the link on a job application, have a look at my digital [[CV]]. Also check out the [[Technical]] aspect of the website if you wish.
