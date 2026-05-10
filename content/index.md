@@ -6,4 +6,4 @@ Welcome to my [[Hypertext garden]]. Feel free to look around and read my notes. 
 - [[CV]]
 - [[Restaurante TOP reviews]]
 
-Also check out the [[Technical]] aspect of the website if you wish.
+Check out the [[Technical]] aspect of the website if you wish. Please keep in mind this website is a work in progress and it will always be. 
