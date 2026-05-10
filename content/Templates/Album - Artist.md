@@ -1,0 +1,6 @@
+#review 
+
+| ![[Tranquilizer-OneohtrixPointNever.jpg]] | <span style="white-space:nowrap;"><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="position:relative;display:inline-block;width:1em;"><span style="color:#f5b301;position:absolute;overflow:hidden;width:0.5em;">★</span><span style="color:#ccc;">★</span></span><span style="color:#ccc;">★</span></span><br><br>Artist: <br><br>Genre: <br><br>Release date: <br><br>X songs - Y min<br> |
+| ----------------------------------------- | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
+Review
