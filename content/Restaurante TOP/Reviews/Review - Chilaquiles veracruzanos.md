@@ -1,7 +1,7 @@
 #review
 
 
-| ![[chilaquilesveracruzanos.jpeg\|363]] | <span style="white-space:nowrap;"><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#ccc;">★</span><span style="color:#ccc;">★</span></span><br><br>Chilaquiles veracruzanos<br><br>Fecha: 2026-05-11<br> |
+| ![[chilaquilesveracruzanos.jpeg\|251]] | <span style="white-space:nowrap;"><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#ccc;">★</span><span style="color:#ccc;">★</span></span><br><br>Chilaquiles veracruzanos<br><br>Fecha: 2026-05-11<br> |
 | -------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 Primero que nada debo mencionar que se olvidaron de mi orden en el restaurante y se demoraron más de 20 minutos en entregarme el platillo. No se va a considerar para la calificación final, pero me pareció importante mencionarlo. Cuando recibí el platillo me pareció buena la presentación. La salsa se veía de muy buen color y con mejor consistencia que días pasados. La salsa del restaurante TOP generalmente es un poco menos espesa y se presta menos para chilaquiles y platillos similares.
 
