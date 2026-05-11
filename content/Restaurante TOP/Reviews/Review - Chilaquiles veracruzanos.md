@@ -1,8 +1,8 @@
 #review
 
-
 | ![[chilaquilesveracruzanos.jpeg\|251]] | <span style="white-space:nowrap;"><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#f5b301;">★</span><span style="color:#ccc;">★</span><span style="color:#ccc;">★</span></span><br><br>Chilaquiles veracruzanos<br><br>Fecha: 2026-05-11<br> |
 | -------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
 Primero que nada debo mencionar que se olvidaron de mi orden en el restaurante y se demoraron más de 20 minutos en entregarme el platillo. No se va a considerar para la calificación final, pero me pareció importante mencionarlo. Cuando recibí el platillo me pareció buena la presentación. La salsa se veía de muy buen color y con mejor consistencia que días pasados. La salsa del restaurante TOP generalmente es un poco menos espesa y se presta menos para chilaquiles y platillos similares.
 
 Inicialmente, me gustó el sabor del platillo, la salsa tenía más sabor que de costumbre. La carne estaba cocinada a un buen punto. No se sentía chiclosa ni dura. Los totopos aguantaron bien la humedad de la salsa y no se hicieron aguados rápidamente. Los frijoles estaban bien condimentados y cremosos. Me hubiera gustado que los chilaquiles tuvieran un poco más de queso, pero no es una falta alarmante. Sin embargo, el principal problema del platillo fue lo salado que estaba. Los primeros bocados no lo sentí demasiado, pero al comer una cuarta parte del platillo ya estaba cansado del sabor a sal. Esta fue la razón principal por la que bajó tantos puntos en la calificación.
